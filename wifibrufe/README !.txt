@@ -1,0 +1,1 @@
+Don't use fast file in old pc (it can be damaged ).Use slow mode ! Do your own risk ! This file not for sale ! 
